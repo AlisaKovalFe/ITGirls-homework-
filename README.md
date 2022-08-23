@@ -1,2 +1,0 @@
-# ITGirls-homework-
-
